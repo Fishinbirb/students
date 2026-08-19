@@ -16,7 +16,7 @@ I am currently an undergraduate student in Computer Science at the University of
 
 ## Interests & Hobbies
 
-I love to cook, hike, and mess around with computers. My favorite meal to eat is pesto chicken pasta. My favorite meal to make is an overnight steak fajita marinade because it is so good for so little work. I am also a big fan of Deaklock.
+I love to cook, hike, and mess around with computers. My favorite meal to eat is pesto chicken pasta. My favorite meal to make is an overnight steak fajita marinade because it is so good for so little work. I am also a big fan of Deadlock.
 
 ---
 
